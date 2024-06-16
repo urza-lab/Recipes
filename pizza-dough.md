@@ -15,7 +15,7 @@ For 3 Pizza's
 3. Put it in to the fridge over night
 
 ## Dough
-### Base (2.5, thereof with 25 mins active)
+### Base (2.5, thereof 25 mins active)
 1. Take poolish out of the fridge and give it 45 minutes to accomodate to room temperature
 2. Put 420g flour, 13g salt and another 3g yeast with the poolish in the mixing bowl of the kitchen machine
 3. Mix the dough in the kitchen machine for 10 - 15 minutes while adding **step by step** a total of 230ml water - *this allows the dough to absorb the water*
