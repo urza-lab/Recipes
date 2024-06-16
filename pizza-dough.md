@@ -29,7 +29,7 @@ For 3 Pizza's
 3. [Form a cave](https://youtu.be/hxMMT9NrGcc?si=oZ4Ncbr068rG_Z-m&t=380) with your hands over and around the Pizza ball, pull the ball towards you, lift the ball while rotating it a bit and repeat - *this closes the ball underneath*
 4. Repeat for every Pizza ball
 5. Cover Pizza balls with oil and put the mixing bowl on them to rest another 1-2 hours
-6. Pre-heat your oven to the maximum in Pizza - *for conventional household ovens, use its Pizza (convection + lower Rod) or convection mode*
+6. Pre-heat your oven to the maximum - *for conventional household ovens, use its Pizza (convection + lower Rod) or convection mode*
 7. Take a tupper box and fill some semola into it
 8. Remove mixing bowl from Pizza balls, put semola on the connections between the balls and separate them from each other
 9. Add Pizza ball into semola tupper box, turn it to have both sides covered with Semola
