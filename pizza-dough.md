@@ -23,10 +23,10 @@ For 3 Pizza's
 5. Form the dough to a big ball by forming a [funnel-like form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) with your hands around the bottowm of the dough and twisting it
 6. Cover the dough with a bit of olive oil, put the mixing bowl upside down on it and let it rest for an hour
 
-### Pizza balls
+### Pizza balls (30-45 minutes)
 1. Remove mixing bowl from dough, slice it into three even parts - *these will be your Pizza balls*
 2. Keep top of the parts on top, while folding dough under the part to form a ball - *you can also [flip the ball and fold it upwards](https://youtu.be/hxMMT9NrGcc?si=geojQPr5197EfTK7&t=361), just make sure to turn it around again before the next step*
-3. [Form a cave](https://youtu.be/hxMMT9NrGcc?si=oZ4Ncbr068rG_Z-m&t=380) with your hands over and around the Pizza ball, pull the ball towards you, lift the ball while rotating it a bit and repeat - *this closes ball underneath*
+3. [Form a cave](https://youtu.be/hxMMT9NrGcc?si=oZ4Ncbr068rG_Z-m&t=380) with your hands over and around the Pizza ball, pull the ball towards you, lift the ball while rotating it a bit and repeat - *this closes the ball underneath*
 4. Repeat for every Pizza ball
 5. Cover Pizza balls with oil and put the mixing bowl on them to rest another 1-2 hours
 6. Pre-heat your oven to the maximum in Pizza - *for conventional household ovens, use its Pizza (convection + lower Rod) or convection mode*
