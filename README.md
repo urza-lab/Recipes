@@ -1,3 +1,5 @@
 # Recipes
 A just started collection of recipes
-* pizza-dough
+---
+# Content
+* [Pizza Dough]([url](https://github.com/urza-lab/recipes/blob/main/pizza-dough.md))
