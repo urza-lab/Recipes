@@ -8,7 +8,7 @@ Inspired by [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichners
 For 3 Pizza's
 * 500g Pizza Flour (Type 00) - I use [Caputo](https://www.mulinocaputo.it/de/ricette/la-pizza-napoletana/)
 * Some Semola - I use [Caputo](https://www.mulinocaputo.it/de/produzieren/Grie%C3%9F/)
-* Yeast (7g fresh or 1.7g dry - I use [Caputo]([url](https://www.mulinocaputo.it/en/products/active-dry-yeast/)))
+* Yeast (7g fresh or 1.7g dry - I use [Caputo](https://www.mulinocaputo.it/en/products/active-dry-yeast/)
 * Teaspoon Honey
 * 15g Salt
 * 500ml Cold Water
