@@ -7,20 +7,20 @@ Inspired by [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichners
 ## Ingredients
 For 3 Pizza's
 * 500g Pizza Flour (Type 00) - I use [Caputo](https://www.mulinocaputo.it/de/ricette/la-pizza-napoletana/)
-* Semola - I use Caputo](https://www.mulinocaputo.it/de/produzieren/Grie%C3%9F/)
-* Yeast (fresh or dry)
-* Teaspoon of Honey
-* Salt
-* Cold Water
+* Some Semola - I use [Caputo](https://www.mulinocaputo.it/de/produzieren/Grie%C3%9F/)
+* Yeast (7g fresh or 1.7g dry - I use [Caputo]([url](https://www.mulinocaputo.it/en/products/active-dry-yeast/)))
+* Teaspoon Honey
+* 15g Salt
+* 500ml Cold Water
 
 ## Dough
 ### Base (2.5, thereof 25 mins active)
 1. Put Fluor into Kitchen Machine Bowl. If using dry Yeast: Mix 1.7g into Fluor directly
-2. Dissolve Teaspoon of Honey in 400ml water. If using fresh Yeast: Add 2g and mix
-3. Mix the Dough in the Kitchen Machine for 10 - 15 minutes while adding water **step by step** - *this allows the dough to absorb the water*
-4. Remove dough from the bowl to the counter and [fold it](https://youtu.be/hxMMT9NrGcc?si=x9VhxrxLXqaJqqjt&t=265) 20 times while keeping top side on top - *this makes the dough less sticky and adds air into it*
-5. Form the dough to a big ball by applying a [funnel-like form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) with your hands around the bottowm of the dough and twisting it
-6. Cover the dough with a bit of olive oil, put the mixing bowl upside down on it and let it rest for an hour
+2. Dissolve Teaspoon of Honey in 400ml water. If using fresh Yeast: Add 7g and mix
+3. Mix the Dough in the Kitchen Machine for 10 - 15 minutes while adding water **step by step** - *this allows the dough to absorb the water* - and add 15g Salt after having all water added
+5. Remove dough from the bowl to the counter and [fold it](https://youtu.be/hxMMT9NrGcc?si=x9VhxrxLXqaJqqjt&t=265) 20 times while keeping top side on top - *this makes the dough less sticky and adds air into it*
+6. Form the dough to a big ball by applying a [funnel-like form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) with your hands around the bottowm of the dough and twisting it
+7. Cover the dough with a bit of olive oil, put the mixing bowl upside down on it and let it rest for an hour
 
 ### Pizza balls (30-45 minutes)
 1. Remove mixing bowl from dough, slice it into three even parts - *these will be your Pizza balls*
