@@ -1,5 +1,5 @@
 # Pizza Dough
-Inspired by [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichners Pizza Palace](https://www.youtube.com/@Teichners_Pizza_Palace) and [Einfach Backen - Marcel Paa]([url](https://www.youtube.com/@marcelpaa))
+Inspired by [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichners Pizza Palace](https://www.youtube.com/@Teichners_Pizza_Palace) and [Einfach Backen - Marcel Paa](https://www.youtube.com/@marcelpaa)
 
 ## Tools
 * Kitchen Machine
