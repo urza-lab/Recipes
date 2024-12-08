@@ -14,7 +14,7 @@ For 3 Pizza's
 * 500ml Cold Water
 
 ## Dough
-### Base (2.5, thereof 25 mins active)
+### Base (2 hours, 30 minutes active)
 1. Put Fluor into Kitchen Machine Bowl. If using dry Yeast: Mix 1.7g into Fluor directly
 2. Dissolve Teaspoon of Honey in 400ml water. If using fresh Yeast: Add 7g and mix
 3. Mix the Dough in the Kitchen Machine for 10 - 15 minutes while adding water **step by step** - *this allows the dough to absorb the water* - and add 15g Salt after having all water added
@@ -22,13 +22,13 @@ For 3 Pizza's
 6. Form the dough to a big ball by applying a [funnel-like form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) with your hands around the bottowm of the dough and twisting it
 7. Cover the dough with a bit of olive oil, put the mixing bowl upside down on it and let it rest for an hour
 
-### Pizza balls (30-45 minutes)
+### Pizza balls 
 1. Remove mixing bowl from dough, slice it into three even parts - *these will be your Pizza balls*
 2. Keep top of the parts on top, while folding dough under the part to form a ball - *you can also [flip the ball and fold it upwards](https://youtu.be/hxMMT9NrGcc?si=geojQPr5197EfTK7&t=361), just make sure to turn it around again before the next step*
 3. [Form a cave](https://youtu.be/hxMMT9NrGcc?si=oZ4Ncbr068rG_Z-m&t=380) with your hands over and around the Pizza ball, pull the ball towards you, lift the ball while rotating it a bit and repeat - *this closes the ball underneath*
 4. Repeat for every Pizza ball
-5. Optional: Put into fridge overnight
-6. Cover Pizza balls with oil and put the mixing bowl on them to rest another 1-2 hours
+5. Cover Pizza balls with oil
+6. Put into fridge overnight **OR** put the flipped mixing bowl on them to rest another 1-2 hours
 7. Pre-heat your oven to the maximum - *for conventional household ovens, use its Pizza (convection + lower Rod) or convection mode*
 8. Take a tupper box and fill some semola into it
 9. Remove mixing bowl from Pizza balls, put semola on the connections between the balls and separate them from each other
