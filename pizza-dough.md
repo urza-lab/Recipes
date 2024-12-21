@@ -11,12 +11,12 @@ For 3 Pizza's
 * Yeast (7g fresh or 1.7g dry - I use [Caputo](https://www.mulinocaputo.it/en/products/active-dry-yeast/)
 * Teaspoon Honey
 * 15g Salt
-* 500ml Cold Water
+* 320ml Cold Water
 
 ## Dough
 ### Base (2 hours, 30 minutes active)
 1. Put Fluor into Kitchen Machine Bowl. If using dry Yeast: Mix 1.7g into Fluor directly
-2. Dissolve Teaspoon of Honey in 400ml water. If using fresh Yeast: Add 7g and mix
+2. Dissolve Teaspoon of Honey in 320ml water. If using fresh Yeast: Add 7g and mix
 3. Mix the Dough in the Kitchen Machine for 10 - 15 minutes while adding water **step by step** - *this allows the dough to absorb the water* - and add 15g Salt after having all water added
 5. Remove dough from the bowl to the counter and [fold it](https://youtu.be/hxMMT9NrGcc?si=x9VhxrxLXqaJqqjt&t=265) 20 times while keeping top side on top - *this makes the dough less sticky and adds air into it*
 6. Form the dough to a big ball by applying a [funnel-like form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) with your hands around the bottowm of the dough and twisting it
