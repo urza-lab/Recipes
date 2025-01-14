@@ -8,7 +8,7 @@ Inspiriert von [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichn
 
 ## Zutaten
 Für 3 Pizzen
-* 500g Pizzamehl (Type 00) - bspw. [Caputo Farina Pizzeria](https://www.mulinocaputo.it/de/ricette/la-pizza-napoletana/)
+* 500g Pizzamehl (Typ 00) - bspw. [Caputo Farina Pizzeria](https://www.mulinocaputo.it/de/ricette/la-pizza-napoletana/)
 * Etwas Semola - bspw. [Caputo Semola Ricinata](https://www.mulinocaputo.it/de/produzieren/Grie%C3%9F/)
 * Hefe (7g frisch oder 1.7g trocken - bspw. [Caputo Lievito secco attivo](https://www.mulinocaputo.it/en/products/active-dry-yeast/))
 * 1 Teelöffel Honig
