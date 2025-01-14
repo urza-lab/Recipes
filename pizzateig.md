@@ -38,6 +38,6 @@ Für 3 Pizzen
 3. Teigballenbox öffnen, Semola auf die Verbindungen zwischen den Kugeln und an die Ränder der Box geben. Mit Spachtel trennen und herausnehmen.
 4. Pizzakugel in die Semola-Tupperdose legen und wenden, sodass beide Seiten mit Semola bedeckt sind.
 5. [Herrn Teichners Anleitung](https://youtu.be/hxMMT9NrGcc?si=JFkn1DhSCmJXnb72&t=539) folgen, um die Pizzakugel zu einer Pizza zu formen.
-6. Parmesan, Tomatensauce, Mozzarella und Belag nach Wunsch darauf geben.
+6. Tomatensauce, Parmesan, Mozzarella und Belag nach Wunsch darauf geben.
 7. Die Pizza in den Ofen schieben. Nach 6 Minuten im Minutentakt prüfen, um den perfekten Punkt zu finden. Bei 275°C ist sie in der Regel nach 6-8 Minuten fertig.
 8. Mahlzeit.
