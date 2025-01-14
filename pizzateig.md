@@ -5,13 +5,13 @@ Inspiriert von [Vito Iacopelli](https://www.youtube.com/@vitoiacopelli), [Teichn
 * Küchenmaschine
 
 ## Zutaten
-Für 6 Pizzen:
+Für 6 Pizzen
 * 1000g Pizzamehl (Type 00) - Ich verwende [Caputo Farina Pizzeria](https://www.mulinocaputo.it/de/ricette/la-pizza-napoletana/)
 * Etwas Semola - Ich verwende [Caputo Semola Ricinata](https://www.mulinocaputo.it/de/produzieren/Grie%C3%9F/)
 * Hefe (14g frisch oder 3.4g trocken - Ich verwende [Caputo Lievito secco attivo](https://www.mulinocaputo.it/en/products/active-dry-yeast/))
 * 1 Teelöffel Honig
 * 30g Salz
-* 6400ml kaltes Wasser
+* 640ml kaltes Wasser
 
 ## Teig
 ### Grundteig (2 Stunden, davon 30 Minuten aktiv)
