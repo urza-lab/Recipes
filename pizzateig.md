@@ -15,7 +15,7 @@ Für 3 Pizzen
 * 15g Salz
 * 320ml kaltes Wasser
 
-## Teig
+## Arbeitsschritte
 ### Grundteig (2 Stunden, davon 30 Minuten aktiv)
 1. 500g Typ 00 Mehl in die Schüssel der Küchenmaschine geben. Bei Verwendung von Trockenhefe: 1.7g direkt ins Mehl mischen.
 2. Gehäuften Teelöffel Honig in 320ml Wasser auflösen. Bei Verwendung von frischer Hefe: 7g hinzufügen und auflösen.
