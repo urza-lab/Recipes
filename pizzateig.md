@@ -13,12 +13,12 @@ Für 3 Pizzen
 * Hefe (7g frisch oder 1.7g trocken - bspw. [Caputo Lievito secco attivo](https://www.mulinocaputo.it/en/products/active-dry-yeast/))
 * 1 Teelöffel Honig
 * 15g Salz
-* 320ml kaltes Wasser
+* 300ml kaltes Wasser
 
 ## Arbeitsschritte
 ### Grundteig (2 Stunden, davon 30 Minuten aktiv)
 1. 500g Typ 00 Mehl in die Schüssel der Küchenmaschine geben. Bei Verwendung von Trockenhefe: 1.7g direkt ins Mehl mischen.
-2. Gehäuften Teelöffel Honig in 320ml Wasser auflösen. Bei Verwendung von frischer Hefe: 7g hinzufügen und auflösen.
+2. Gehäuften Teelöffel Honig in 300ml Wasser auflösen. Bei Verwendung von frischer Hefe: 7g hinzufügen und auflösen.
 3. Den Teig in der Küchenmaschine 10-15 Minuten mittels Knethaken auf Stufe 2 kneten, während das Wasser innert den ersten zwei-drei Minuten **schrittweise** hinzugefügt wird - *dies ermöglicht es dem Teig, das Wasser aufzunehmen*. 15g Salz hinzufügen, nachdem das gesamte Wasser hinzugefügt wurde.
 4. Den Teig aus der Schüssel auf die Arbeitsfläche nehmen und [20 Mal falten](https://youtu.be/hxMMT9NrGcc?si=x9VhxrxLXqaJqqjt&t=265). Oberseite des Teiges oben halten - *dies macht den Teig weniger klebrig und füllt ihn mit Luft*.
 5. Den Teig zu einer großen Kugel formen, indem man mit den Händen eine [trichterartige Form](https://youtu.be/hxMMT9NrGcc?si=1WdL95Xa-JzTvFWj&t=289) um den Boden des Teigs anwendet und ihn dreht.
